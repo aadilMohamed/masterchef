@@ -10,4 +10,4 @@ pepper(to your liking)
 Method:
 1)Peel the avacados and pit them.
 2)mince or make the avacados into paste.
-2)Mix all the ingredients together.(Add the salt at the end)
+3)Mix all the ingredients together.(Add the salt at the end)
